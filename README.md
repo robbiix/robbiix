@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @robbiix
+- 👀 I’m interested in art and animation and i rlly wanna start coding lol
+- 📫 How to reach me instafram as @robbii.x :)
